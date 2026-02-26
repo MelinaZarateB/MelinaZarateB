@@ -10,4 +10,4 @@ Creo en la resolucion efectiva de problemas, siempre encaminada a superar los de
 
 💡 Si estas buscando a alguien que combine aptitudes tecnicas y pasion por la creatividad e innovacion, estoy expectante para contribuir a tu equipo.
 Puedes contactarme por email: melinazarate77@gmail.com 
-Mediante Linkedin: https://www.linkedin.com/in/melina-zarate-bussoletti-97805022a/
+Mediante Linkedin: https://www.linkedin.com/in/melina-zarate-bussoletti/
